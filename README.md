@@ -34,3 +34,5 @@ det bliver altid opdaget og ikke nok med fængsel så kan du også miste alt adg
 -MSN MODS
 
 Discord: https://discord.gg/8n6sp2GdQx 
+Tebex: https://msn-mods.tebex.io/
+
